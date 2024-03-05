@@ -1,8 +1,8 @@
 Maison de retraite 2 Streaming vf les films et les livres tiennent une partie de mon cœur. Et de cette façon, j’aime tout. Non, je ne parlerai pas de la scène entière, je pourrais finir avec un nouveau film si je le faisais,
 
-Regarder ➡ [Maison de retraite 2 VOIR STREAMING](https://jm.filmy-zilla.lat/movie/1083300)
+Regarder ➡ [Maison de retraite 2 VOIR STREAMING](https://jm.filmy-zilla.lat/fr/movie/1083300)
 
-Telecharger ➡ [Maison de retraite 2 FILM COMPLETHD](https://jm.filmy-zilla.lat/movie/1083300)
+Telecharger ➡ [Maison de retraite 2 FILM COMPLETHD](https://jm.filmy-zilla.lat/fr/movie/1083300)
 
 Sortie du film Maison de retraite 2 : Date de sortie?
 La suite d’Maison de retraite 2, a été confirmé un mois après la sortie du premier film au cinéma. Le 19 mai 2023, Maison de retraite 2 2 avait été confirmé. Quand pourrons-nous le voir en salle ? Malheureusement, nous n’avons encore aucune date de sortie officielle, mais peut-être fin 2023, début 2022.
